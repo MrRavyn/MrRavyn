@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @MrRavyn
+- I like to write
+- Incredibly new to this site and incredibly out of my depth (But trying to learn)
+- Unless I ask for help, I don't think I'll be collaberating much I guess.
+- Reach me at lakedorr@gmail.com
